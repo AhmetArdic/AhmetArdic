@@ -9,7 +9,7 @@
 
 - 📫 Bana **ahmetardic.kr@gmail.com** adresinden ulaşabilirsin.
 
-- 📄 Hakkımda daha fazla bilgi sahibi olmak için [https://ahmet-talha-ardic.tiiny.site/](https://ahmet-talha-ardic.tiiny.site/)
+- 📄 Hakkımda daha fazla bilgi sahibi olmak için [https://ahmet-talha-ardic.tiiny.site/](https://ahmet-talha-ardic.tiiny.site)
 
 <h3 align="left">Benimle iletişime geç:</h3>
 <p align="left">
